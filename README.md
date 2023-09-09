@@ -9,4 +9,4 @@
 - Portuguese
 - English
 
-#### You can find my projects down below
+#### You can find my projects in my main page
